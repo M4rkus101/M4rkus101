@@ -32,7 +32,7 @@
       <h3>   </h3>
       <p>-I'๓ ค şhฯ pērş໐ຖ, I ¢คຖ ๖ē ຖērง໐นş ຟhēຖ iຖt ຟith ştrคຖງērş.
   <p><p align="center">
--คlຟคฯş frēē t໐ ¢น໓໓lē, ๖นt ໐ຖlฯ ຟith I'๓ คl໐ຖē.
+-คlຟคฯş frēē t໐ iຖtērค¢t, ๖นt ໐ຖlฯ ຟith I'๓ คl໐ຖē.
     
   <p><p align="center">
 <img width="99" height="56" alt="httyd4" src="https://github.com/user-attachments/assets/d6559a51-f2be-4a47-b137-8f223ca31bf3" />
