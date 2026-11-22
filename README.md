@@ -57,7 +57,7 @@ Fคง໐ritē Şiຖງērş. :
 คຖ໓ ໐ຖē, ¢นrrēຖt ว໐ฯş, Tง ງirl, วค¢k Ştคน๖ēr, ๓ค¢ ໓ē๓คr¢໐, ¢rฯştคl ¢คştlēş, Pคştēl ງh໐ştş, ຟhirr, คlēx ງ, Thrēē ໓คฯş ງrค¢ē.
 
   <p><p align="center">
-<img width="99" height="56" alt="d75yhcd-3011a6b9-c635-4d2e-9f68-77cb6d61ff07" src="https://github.com/user-attachments/assets/a780d211-8e03-46b7-86ad-7996f32170fd" />
+<img width="99" height="56" alt="d7pi045-83d3f8de-5aa9-47bd-8a73-f2d296ef5c45" src="https://github.com/user-attachments/assets/27454ef7-bcca-45de-ae72-6035cc1fa7db" />
 
 <img width="99" height="56" alt="d70vg8i-eda161f7-31b4-4732-8dc3-394576afd248" src="https://github.com/user-attachments/assets/11935483-5cbb-4145-9f5d-7fe23302f4d9" />
 
