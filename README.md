@@ -61,9 +61,9 @@ Fคง໐ritē Şiຖງērş. :
 
 <img width="99" height="56" alt="d70vg8i-eda161f7-31b4-4732-8dc3-394576afd248" src="https://github.com/user-attachments/assets/11935483-5cbb-4145-9f5d-7fe23302f4d9" />
 
-<img width="99" height="56" alt="httyd2" src="https://github.com/user-attachments/assets/e7218687-3613-47b7-974a-5717a42a9142" />
+<img width="99" height="56" alt="d7pi02t-4d32347d-9a67-4643-b6e7-562fd680292f" src="https://github.com/user-attachments/assets/9f1e60ce-b9af-4a94-81ee-19844d459416" />
 
-<img width="99" height="56" alt="d7pdma4-5c2367c2-c763-42f4-8055-508a2040a7b0" src="https://github.com/user-attachments/assets/3f980ea5-a77c-4a1b-860c-ede361e3a364" />
+<img width="99" height="56" alt="d7pn2aq-cf8bafcc-005b-4b8e-a773-c011d9b87d80" src="https://github.com/user-attachments/assets/dc80f658-e41f-48f1-8eb0-6fba819a90c6" />
 
 </p>
     </td>
