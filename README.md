@@ -30,8 +30,9 @@
   <tr>
     <td width="60%">
       <h3>   </h3>
+        <p><p align="left">
       <p>-I'๓ ค şhฯ pērş໐ຖ, I ¢คຖ ๖ē ຖērง໐นş ຟhēຖ iຖt ຟith ştrคຖງērş.
-  <p><p align="center">
+  <p><p align="right">
 -คlຟคฯş frēē t໐ iຖtērค¢t, ๖นt ໐ຖlฯ ຟith I'๓ คl໐ຖē.
     
   <p><p align="center">
