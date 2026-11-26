@@ -3,7 +3,7 @@ WIP
 
 
 <p><p align="center">
-<a href="https://hits.sh/github.com/M4rkuS101/"><img alt="Hits" src="https://hits.sh/github.com/M4rkuS101.svg?style=flat-square&label=%E0%BB%93r%E0%B8%84%E0%BA%87%E0%BB%90%E0%BA%96%20Ri%E0%BB%93%C4%93r%C5%9F&color=f3f3f3&labelColor=0d0d0f"/></a>
+<a href="https://hits.sh/github.com/M4rkuS101/"><img alt="Hits" src="https://hits.sh/github.com/M4rkuS101.svg?style=flat-square&label=seeds.&color=4e5d43&labelColor=6d7367"/></a>
 
 
 <p><p align="center">
