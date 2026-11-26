@@ -13,3 +13,27 @@ WIP
 
 <p align="center">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31b7rlheccpc6whjf7ppqftkif6y&cover_image=true&theme=novatorem&show_offline=true&background_color=271932&interchange=false&profanity=false&hide_remaster=false&bar_color=3d2546&bar_color_cover=false">
+
+
+   <p><p align="center">
+  <a href="https://discord.com/users/1356558958222901299">
+    discord
+  </a>
+,
+  <a href="https://www.roblox.com/users/7204730988/profile">
+    roblox
+  </a>
+,   
+  <a href="https://m4rkus101.atabook.org/">
+    atabook
+  </a>
+,
+        </a>
+  <a href="https://guns.lol/Mark101">
+    guns.lol
+  </a>
+,
+  </a>
+  <a href="https://frozi.lol/m4rkus101">
+    frozi.lol
+  </a>
